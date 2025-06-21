@@ -2,7 +2,8 @@
 <p>52BT是一个专注于BT种子和磁力链接搜索的资源网站，提供海量影视、音乐、游戏、小说、电子书等资源的下载服务。其核心功能包括种子搜索、磁力链接搜索以及BT下载工具支持，致力于为用户提供高效、便捷的资源获取体验。此外，52BT还具备强大的数据索引能力，拥有上亿级的数据量，能够快速匹配用户需求，并通过智能化算法优化搜索结果。</p>
 <p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/52bt.html
 " target="_blank"><strong>52BT最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
